@@ -1,5 +1,7 @@
 Roxanne Lefebvre
 
+front end/back end enthusiast
 
+full stack student @collegeMaisonneuve
 
-Étudiante en programmation Web
+Roxanne.lef@hotmail.com
